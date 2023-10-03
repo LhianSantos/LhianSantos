@@ -3,10 +3,7 @@
 - Meu nome e Lhian Carlos.
 - Estudo na Colegio Estadual Marcia Vaz De Abreu
 - Trabalho na granja de frango
-- Tenho um grupo apocalitipco insta deles 
-
-### Entre em contato
-[](instragram.com/Kau_souzzaa)
+- Tenho um grupo apocalitipco 
 
 Gosto de anime 
 
